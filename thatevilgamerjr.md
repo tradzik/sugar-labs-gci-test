@@ -1,1 +1,1 @@
-stevens is super awesome way more awesome than you
+Stevens is awesome
